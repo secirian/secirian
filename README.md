@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @secirian
-- 👀 I’m interested in anything
+- 👀 I’m interested in everything
 - 🌱 I’m currently learning a lot
 - 📫 How to reach me: matrix @sec:nyaw.xyz
